@@ -8,14 +8,15 @@ Pasang Iklan? Chat Whatsapp
 💰ᴅᴏɴᴀsɪ ᴀɢᴀʀ ʙᴏᴛ ᴛᴇᴛᴀᴘ ᴀᴋᴛɪғ, !ᴅᴏɴᴀsɪ ᴜɴᴛᴜᴋ ʙᴇʀᴅᴏɴᴀsɪ.
 
 INFO BOT! :
-🔱 *ᴀᴜᴛʜᴏʀ*: ʀᴇᴜᴢ
-🔱 *ɢɪᴛʜᴜʙ*: https://github.com/
+🔱 *ᴀᴜᴛʜᴏʀ*: REUZ
+🔱 *ɢɪᴛʜᴜʙ*: https://github.com/ikram442/botganteng
+
 🔱 *ɪɴsᴛᴀɢʀᴀᴍ*: ${instagram}
 🔱 *ʏᴏᴜᴛᴜʙᴇ*: ${youtube}
 🔱 *ᴛᴇʟᴇɢʀᴀᴍ* : ${telegram}
 🔱 *ᴡʜᴀᴛsᴀᴘᴘ* : 
 
-INFO LAIN! :
+INFO LAIN! : *ORIGINAL BY*:https:github.com/fdciabdul
 
 ʙᴏᴛ ɪɴɪ ᴍᴇɴɢɢᴜɴᴀᴋᴀɴ sᴏᴜʀᴄᴇ ᴄᴏᴅᴇ ʏᴀɴɢ sᴀʏᴀ ᴅᴀᴘᴀᴛᴋᴀɴ ᴅᴀɴ sᴀʏᴀ ᴍᴏᴅɪғɪᴋᴀsɪ ᴅᴇɴɢᴀɴ ᴘᴇɴᴀᴍʙᴀʜᴀɴ, ᴘᴇɴɢᴜʀᴀɴɢᴀɴ, ᴅᴀɴ ᴘᴇʀᴜʙᴀʜᴀɴ ʙᴇʙᴇʀᴀᴘᴀ ғɪᴛᴜʀ.
 ʙᴏᴛ ɪɴɪ ᴅɪʙᴜᴀᴛ ᴍᴇɴɢɢᴜɴᴀᴋᴀɴ ɴᴏᴅᴇ.ᴊs
